@@ -1,1 +1,1 @@
-# PraktiskaisUzdevums
+Artjoms Kazmirčuks
